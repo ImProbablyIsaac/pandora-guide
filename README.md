@@ -1,4 +1,3 @@
-# pandora-guide
 Advertise your Discord server...everywhere!
 # Get Free people for your Discord server
 ![Analytics](https://ga-beacon.appspot.com/UA-88945071-1/welcome-page)
