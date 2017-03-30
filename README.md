@@ -5,7 +5,7 @@ Advertise your Discord server...everywhere!
 Here at Pandora we welcome, any people. who owns a server and want's to make it bigger.
 So, today ill show you a easy, and simple trick to gain more people for your discord server.and increase your server size IMMEDIATELY!
 
-**Found more?** ask **𝒾𝓈𝒶𝒶𝒸 ♦#4290** for updates. and [Join the Pandora](https://discord.gg/zvSxSk2) for support, and the official server.
+**Found more?** ask **𝓲𝓼𝓪𝓪𝓬#5334** for updates. and [Join the Pandora](https://discord.gg/zvSxSk2) for support, and the official server.
 
 
 # [Official Pandora Server](https://discord.gg/zvSxSk2)
